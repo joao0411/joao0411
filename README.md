@@ -1,4 +1,5 @@
-msafdasnma7fdnbvjmaritubapa - banco do brasil -tranferência pix - 07438375250 - CPF CHAVE PIX
+msafdasnma7fdnbvjmaritubapa - banco do brasil -tranferência pix - 07438375250 - CPF CHAVE PIX - VALOR- 10000
+,
 
 
 BRASIL GANHA COPA
